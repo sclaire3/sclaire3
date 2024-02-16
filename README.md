@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on projects that involve building innovative solutions and pushing the boundaries of technology.
 
-📫 How to reach me: You can reach me via email at sclaire3@example.com or connect with me on LinkedIn at LinkedIn Profile.
+📫 How to reach me: You can reach me via email at @sclaire3
 
 😄 Pronouns: She/her
 
